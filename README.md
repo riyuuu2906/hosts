@@ -1,1 +1,1 @@
-# pubgm vip hex
+# PUBGM VIP HEX.
